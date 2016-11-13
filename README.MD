@@ -1,1 +1,1 @@
-FiddlerCoreCapture by 2010.12.5
+FiddlerCoreCapture by FreezeSoul 2010.12.5
